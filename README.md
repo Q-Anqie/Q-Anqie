@@ -1,2 +1,2 @@
 # About me😊
-## I'm just a little white🫣
+## I'm just a novice🫣
